@@ -1,2 +1,1 @@
-EDUCRACY
-ù
+
